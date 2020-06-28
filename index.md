@@ -13,5 +13,10 @@ Wade hat den Kimmunicator erfunden, welcher wichtige Informationen über ihre Sc
 * trägt grau-grüne Cargohosen und ein schwarzes, bauchfreies Top 
 * sitzt mit Ron im Bueno Nacho 
 
+Kim sagt oft
+> „Was steht an?“ (engl. What’s the sitch?) 
+> „Keine große Sache!“ (engl. No big!) oder So not the drama! 
+> „Das is’ jetzt nich’ wahr, oder?“ (engl. You’re kidding!?). 
+
 
 
